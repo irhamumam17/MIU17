@@ -1,2 +1,2 @@
 # MIU17
-Tempat Latihan yang paling menarik
+Tingkatkan Kemampuan dan Bakatmu
